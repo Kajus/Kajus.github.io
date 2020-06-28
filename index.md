@@ -12,5 +12,7 @@ Since his death, Wallace has obtained an iconic status far beyond his homeland. 
 * believer
 
 As William Wallace said:
-> You f*cking Englishan
+> You f*cking Englishman
 > leave me alone.
+
+<img src="https://cdn.arstechnica.net/wp-content/uploads/2020/05/braveTOP1-800x533.jpg">
