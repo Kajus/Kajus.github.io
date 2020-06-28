@@ -10,3 +10,7 @@ Since his death, Wallace has obtained an iconic status far beyond his homeland. 
 * integer
 * brutal
 * believer
+
+As William Wallace said:
+> You f*cking Englishan
+> leave me alone.
